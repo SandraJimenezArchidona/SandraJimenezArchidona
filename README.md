@@ -1,4 +1,4 @@
-![Titulo](https://user-images.githubusercontent.com/106440634/175770996-b1ecefa0-65de-40b1-a70a-fbd07dc73402.png)
+![Titulo](https://user-images.githubusercontent.com/106440634/183484399-a29c6474-b74a-472e-969e-807433797a21.jpg)
 
 Aqui puedes ver mi Porfolio ![Mano](https://user-images.githubusercontent.com/106440634/175770825-8f939acf-2871-4401-aa6d-af69bf59c088.png)
 http://sansadra.com
